@@ -1,1 +1,1 @@
-# [luckmagnet.github.io](https://github.com/luckmagnet/luckmagnet.github.io/tree/main)
+# [Github](https://github.com/luckmagnet/1Hosts)
