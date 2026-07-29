@@ -1,1 +1,1 @@
-# [Github](https://github.com/luckmagnet/1Hosts)
+# [:new_moon:](https://avatars.githubusercontent.com/u/276503587)
